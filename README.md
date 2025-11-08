@@ -10,8 +10,6 @@ I perfer  w2i since I'm scared  to int in public  but if its more  than one pers
 -And ALSO please PLEASSEEE tell me when I make you uncomfortable or what makes you uncomfortable  just so I don't make you uncomfortable on accident  if I upset you, TELL ME WHAT I DID ^^ I won't get mad it actually  makes me a lot more  happy if you do so I can fix what I did..! 
 
 
--If your older than  16+ do not be jokingly inappropriate  with me, that's all I ask 0-0 
-
 -Uhh I have hyperfixation  on Toya so if I talk about  him too much and you don't like that tell me
 
 -if I snap at you it's an accident. 
@@ -21,5 +19,3 @@ I perfer  w2i since I'm scared  to int in public  but if its more  than one pers
 
 -English isn't my first language I will  have  some mistakes  when I'm typing 
 
-
--don't call me transmasc and gay. It causes  a lot of confusions  abt my gender please just ask me instead of assuming  something. I'm actually  not male but most people  call me he/him because  I remind  them of one which is fine  for me ^^ but do NOT call me trans  that's a lie   Sigh  and if  your joking  please  make it obvious  and no I'm not homophobic  it just ticks  me off when this  happens  unless If it's an accident  it's ok^_^
