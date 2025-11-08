@@ -19,4 +19,7 @@ I perfer  w2i since I'm scared  to int in public  but if its more  than one pers
 -I'm really  soft or weird when I'm tired, and usually  join pt  when I am I join whenever  I overwork myself  or want a quick break  from work or school <3
 
 
--English isn't my first language I will  have  some mistakes  when I'm typing  
+-English isn't my first language I will  have  some mistakes  when I'm typing 
+
+
+-don't call me transmasc and gay. It causes  a lot of confusions  abt my gender please just ask me instead of assuming  something. I'm actually  not male but most people  call me he/him because  I remind  them of one which is fine  for me ^^ but do NOT call me trans  that's a lie   Sigh  and if  your joking  please  make it obvious  and no I'm not homophobic  it just ticks  me off when this  happens  unless If it's an accident  it's ok^_^
