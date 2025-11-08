@@ -17,3 +17,6 @@ I perfer  w2i since I'm scared  to int in public  but if its more  than one pers
 -if I snap at you it's an accident. 
 
 -I'm really  soft or weird when I'm tired, and usually  join pt  when I am I join whenever  I overwork myself  or want a quick break  from work or school <3
+
+
+-English isn't my first language I will  have  some mistakes  when I'm typing  
