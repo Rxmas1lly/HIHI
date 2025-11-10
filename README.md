@@ -19,3 +19,5 @@ I perfer  w2i since I'm scared  to int in public  but if its more  than one pers
 
 -English isn't my first language I will  have  some mistakes  when I'm typing 
 
+
+-I follow people  randomly if I like their ponies or just follow back don't be scared if I follow you pls sighs
